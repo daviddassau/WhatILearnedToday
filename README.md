@@ -2,6 +2,9 @@
 
 I'm a big believer in lifelong learning. We as humans really do learn something new every day, whether we realize it or not. This is a log of at least 1 new thing I learned, per day, starting with May 27th, 2019.
 
+### 5/30/2019
+Today, I learned that it's absolutely nerve-racking to sit and wait for a very important interview to begin. Ok, so maybe this isn't something _new_ per se, but it is something that I had kind of forgotten about, regarding the interview process.
+
 ### 5/29/2019
 Today, I learned that I still possess the ability to impress myself. I managed to secure not 1, but 2, round-three interviews! First one is for a dev position at National General Insurance, tomorrow at 2pm. The second one will (most likely) be with SmileDirectClub, probably either this Friday, or Monday of next week!
 
