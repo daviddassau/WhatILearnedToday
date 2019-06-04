@@ -2,6 +2,9 @@
 
 I'm a big believer in lifelong learning. We as humans really do learn something new every day, whether we realize it or not. This is a log of at least 1 new thing I learned, per day, starting with May 27th, 2019.
 
+### 6/3/2019
+Today, I learned that I am getting super burned out on job hunting, interviewing, talking about myself, etc. Thank god it looks like I am closing in on a job at SmileDirectClub
+
 ### 5/30/2019
 Today, I learned that it's absolutely nerve-racking to sit and wait for a very important interview to begin. Ok, so maybe this isn't something _new_ per se, but it is something that I had kind of forgotten about, regarding the interview process.
 
