@@ -2,6 +2,9 @@
 
 I'm a big believer in lifelong learning. We as humans really do learn something new every day, whether we realize it or not. This is a log of at least 1 new thing I learned, per day, starting with May 27th, 2019.
 
+### 6/4/2019
+Today, I learned that the bus routes going from Murfreesboro to downtown Nashville are WAY too long. There's no reason why it should take 2-2.5 hours by bus to travel that far via public transit!
+
 ### 6/3/2019
 Today, I learned that I am getting super burned out on job hunting, interviewing, talking about myself, etc. Thank god it looks like I am closing in on a job at SmileDirectClub
 
