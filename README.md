@@ -3,7 +3,7 @@
 I'm a big believer in lifelong learning. We as humans really do learn something new every day, whether we realize it or not. This is a log of at least 1 new thing I learned, per day, starting with May 27th, 2019.
 
 ### 6/16/2019
-
+Today is Father's Day. Although this information isn't necessarily new per se, it was definitely reaffirmed. Although I (as well as my wife and children) am facing difficult times, in not-so-ideal circumstances, I am reminded of how incredibly lucky I am. To have a family that loves me unconditionally, to have a father and grandfather that are 100% certified badasses, and a brother (who today celebrates his first Father's Day) who I see more as a peer and "equal" than ever before.
 
 ### 6/14/2019
 I apologize, it's been too long since my last "post". I've been incredibly busy with job hunting/interviewing, but let me tell you, I have definitely learned a LOT. The most important lesson I learned, however, was an iteration of that old proverb "Don't count your chickens before they hatch". Either that one, or "Don't put all your eggs in one basket". Don't ask me why both proverbs that are applicable to my current situation both have to do with chickens lol. Anyways, there was a job prospect that I put too much stock into, and ended up not panning out. I thought it was a done deal, so I began turning my head up at potential job interviews. I know, I know, shame on me, I should have known better, blah blah blah. But you know what? Lesson learned. And for me, the lessons that I learn the HARD way are the ones that usually end up sticking the best. I continue to remain positive with my job search. I have a few prospects and leads, so I'm hoping that something pans out soon!
